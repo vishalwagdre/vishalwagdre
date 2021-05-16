@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @vishalwagdre
+- 👀 I’m interested in Data Science for Construction and Civil Engineering ...
+- 🌱 I’m currently learning Data Science
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me +91 8989590083 Linkedin - https://www.linkedin.com/in/vishal-shriram-03353193/
+
